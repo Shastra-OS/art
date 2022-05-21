@@ -1,2 +1,2 @@
 # art
-Upload wallpapers here
+Upload wallpapers, branding, logo icons ... here
